@@ -1,1 +1,1 @@
-i am bspend my pronouns are they/them
+I am negative $3000 on crypto gambling.
